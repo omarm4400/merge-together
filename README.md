@@ -1,1 +1,4 @@
-# merge-together
+we
+Like
+vanilla
+Icecream
